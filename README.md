@@ -1,2 +1,2 @@
-# sanyabt.github.io
+# vaishnavideshpande1.github.io
 Portfolio
